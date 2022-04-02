@@ -1,2 +1,1 @@
-Nama : Niluh Gresia Aurelia 
-NIM : 2108541005
+Niluh Gresia Aurelia (2108541005)
